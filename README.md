@@ -1,1 +1,1 @@
-agregar codigo
+agregar codigo ab a nuestra configuracion 
